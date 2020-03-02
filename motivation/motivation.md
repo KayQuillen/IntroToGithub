@@ -11,7 +11,13 @@ Motivation:
   My goal here is to motivate you and have you feel like this career shift is possible for you. Through hard work and definitive purpose it 
   is possible. 
   
-  
+  - Kay Quillen
+  - Email: kaseyrquillen@gmail.com
+  - github: KayQuillen
+    Motivation:
+    My motivation for taking this course is to have a better work life balance and get a career making enough money that I my children and I can not just survive but live. I want to find a workplace that I'm valued and not made to feel like I have to put my job before my family.
+
+    I learn in a variety of ways. I have learned on my own with just reading and doing tests. I've also been able to learn watching others and then doing hands on. 
   
   
  
